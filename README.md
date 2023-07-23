@@ -1,4 +1,3 @@
-![Untitled](https://github.com/MyloCyrus/pozorovatelov/assets/106925214/2f0a98f1-507d-43ab-b44d-a2039f50239d)
 
 ![Untitled](https://github.com/MyloCyrus/pozorovatelov/assets/106925214/5e4ec16f-9949-4b68-b74b-039a9839bce6)
 
